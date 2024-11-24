@@ -4,6 +4,7 @@
 - 📫 If you want to contact me email me at safwan.zaman@outlook.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I've been in an interview before! (not to brag 😂)
+- ❤ I love pokemon!
 
 <!---
 Earthring14/Earthring14 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
